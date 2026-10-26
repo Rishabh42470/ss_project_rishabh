@@ -1,1 +1,0 @@
-# ss_project_rishabh
